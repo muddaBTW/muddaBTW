@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @muddaBTW
-- 👀 I’m interested in formula 1 and a web-series
+- 👀 I’m interested in formula 1 and web-series
 - 🌱 I’m currently learning javascript
 - 📫 How to reach me muddaismudda33@gmail.com
 - ⚡ Fun fact: i commit hate crimes on a daily bases
